@@ -33,7 +33,8 @@
 > И не всегда мы - есть собой,    
 > Другими - вовлечённые, внезапно...  
 
-<img width="400" height="400" alt="1769820703708" src="https://github.com/user-attachments/assets/ba2c866f-1a9e-4771-9f68-094d00704da1" />
+<img width="400" height="400" alt="1769820703708" src="https://github.com/user-attachments/assets/image_74.png" />
+
 
 > ...Те, кто вблизи с надеждой,  
 > Смотрят на тебя - услышат..  
